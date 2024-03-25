@@ -1,1 +1,0 @@
-# juhaszakos.github.io
